@@ -1,0 +1,1 @@
+[Full ChatDetail code]
